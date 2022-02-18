@@ -1,1 +1,1 @@
-# JavascriptPrac
+# Sailauov Didar
